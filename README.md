@@ -7,6 +7,8 @@
 ![WhatsApp Image 2023-11-26 à 21 58 09_ec665acf](https://github.com/kawtare12/JspEmp/assets/120519708/d22c7ad9-b54c-4545-aba2-73570eb69574)
 
 ![image](https://github.com/kawtare12/JspEmp/assets/120519708/47c57029-72f1-4181-a450-19ffd95f6301)
+![WhatsApp Image 2023-11-26 à 22 00 53_74383599](https://github.com/kawtare12/JspEmp/assets/120519708/8e72856f-bc59-4c2e-8e27-91d68ff1aed3)
+
 ![WhatsApp Image 2023-11-26 à 21 58 41_1611c095](https://github.com/kawtare12/JspEmp/assets/120519708/5d26d434-0011-4723-8537-26a3a2f6574c)
 
 
